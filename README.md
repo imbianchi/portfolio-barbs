@@ -1,2 +1,2 @@
-[imbianchi.dev](https://imbianchi.dev)
-Resume online.
+[bavvki.com](https://bavvki.com)
+Bárbara Portafolio.
